@@ -1,2 +1,6 @@
 # hello-world
-Ideas and actions
+
+And anybody else that is listening ...
+
+I am new to all of this, but willing to make a wave in the big pond ... 
+Making waves is what I am good at.
